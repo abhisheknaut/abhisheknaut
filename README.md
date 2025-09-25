@@ -1,4 +1,7 @@
-## Hi there 👋ABHISHEK NAUTIYAL
+## 
+Hi there 👋ABHISHEK NAUTIYAL
+🎓 B.Tech CSE student (2024–2028) at Dr. Abdul Kalam Institute of Technology, Tanakpur, Uttarakhand. 
+ Always open to collaborations & impactful projects. 
 
 
 ## 🌐 Socials:
